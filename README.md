@@ -44,6 +44,5 @@ May sound a little ... bad but your phone is a Xiaomi, so here are the instructi
 - 7 Go to step 2 to try to install it again
 
 
-![image](https://github.com/LytexWZ/Maybe-not-/assets/72569213/b41b7d8a-ad29-4337-90ae-8b87c8477fdf)
-
+[<img src="[https://i.imgur.com/KLx3ACp.jpeg](https://github.com/LytexWZ/Maybe-not-/assets/72569213/b41b7d8a-ad29-4337-90ae-8b87c8477fdf)"/>](https://google.com)
 
